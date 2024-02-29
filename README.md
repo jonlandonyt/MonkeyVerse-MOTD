@@ -1,1 +1,1 @@
-Welcome to MonkeyVerse! You can go into 2 different gamemodes Casual or TAG! You can play a classic Game of TAG with your friends! or just go in casual and chill and talk! Play how ever you want to play!
+Welcome to MonkeyVerse! THE WEATHER UPDATE IS HERE! YOU CAN PLAY TAG AND HANGOUT IN CASUAL WHEN ITS RAINING OR AT NIGHT OR AT THE SAME TIME! 
